@@ -12,7 +12,7 @@
  <br>
 💬 Ask me about ...nothing ,for now😅
 <br>
- 📫 How to reach me: ...[Twitter](https://twitter.com/cytrank)
+ 📫 How to reach me: ...[Twitter](https://twitter.com/dhanushn_roryin)
  <br>
  😄 Pronouns: ...He/Him
  <br>
